@@ -77,9 +77,9 @@ But work is rarely as solitary as it feels in the thick of it. The ripple of wha
 
 ### FINAL SUMMARY
 
-On agency — today pulled your attention outward, toward what wasn't in your control. There was still a hand to play. You might find it tomorrow.  
-On contribution — your attention went to what you were owed today. That matters; fairness is real. But it's worth sitting with the question of what you were giving at the same time. 
-On radius — today was mostly yours to carry. That's sometimes necessary. The question to hold: who else was in the room you didn't see?
+-**On agency —** today pulled your attention outward, toward what wasn't in your control. There was still a hand to play. You might find it tomorrow.  
+-**On contribution —** your attention went to what you were owed today. That matters; fairness is real. But it's worth sitting with the question of what you were giving at the same time. 
+-**On radius —** today was mostly yours to carry. That's sometimes necessary. The question to hold: who else was in the room you didn't see?
 
 That's today. Three lenses, one day. See what you make of it tomorrow.
 

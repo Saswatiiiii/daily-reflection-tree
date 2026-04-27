@@ -77,9 +77,9 @@ Contribution is easy to underestimate in yourself. It rarely announces itself �
 
 ### FINAL SUMMARY
 
-On agency — you leaned inward. You stayed close to what you could shape, even when the situation pushed back. That's not a small thing.
-On contribution — you gave today. More than the job description required, maybe more than felt comfortable. That compounds.
-On radius — others were in your frame today. That widening, even a little, is where meaning tends to live.
+- **On agency —** you leaned inward. You stayed close to what you could shape, even when the situation pushed back. That's not a small thing.
+- **On contribution —** you gave today. More than the job description required, maybe more than felt comfortable. That compounds.
+- **On radius —** others were in your frame today. That widening, even a little, is where meaning tends to live.
 
 That's today. Three lenses, one day. See what you make of it tomorrow.
 
